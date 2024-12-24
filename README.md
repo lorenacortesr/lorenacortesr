@@ -1,5 +1,5 @@
- Hi, I’m @lorenacortesr
- 👀 I’m interested in creating fun websites
+- Hi, I’m @lorenacortesr
+- 👀 I’m interested in creating fun websites
  🌱 💞️ 
 
 <!---
